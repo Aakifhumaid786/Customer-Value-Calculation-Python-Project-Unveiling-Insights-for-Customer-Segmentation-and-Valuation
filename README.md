@@ -1,0 +1,1 @@
+# Customer-Value-Calculation-Python-Project-Unveiling-Insights-for-Customer-Segmentation-and-Valuation
